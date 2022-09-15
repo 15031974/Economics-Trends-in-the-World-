@@ -1,1 +1,1 @@
-# Economics-Trends-in-the-World-
+https://www.economicstrends.in/
